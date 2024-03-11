@@ -5,7 +5,7 @@ I'm Hamizah :)
 Eager to level up my coding skills and always look forward to learn new tools! 
 
 ༘⋆˚ෆ [View My Portfolio Website](https://mizzx.github.io/portfolio-hamizah/) ෆ˚⋆ ༘ <br> <br>
-👩🏻‍💻 Information Technology Intern at software development company, Original Intelligence Sdn. Bhd. <br>
+👩🏻‍💻 Recent IT Intern at software development company <br>
 👩🏻‍🎓💻🧬 Bioinformatics Graduate from Universiti Malaya
 
 
